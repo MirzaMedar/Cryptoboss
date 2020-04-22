@@ -5,3 +5,5 @@ Download link : https://mega.nz/#!7VoRCYab!sqZbRtMl_Cn6bsMtgLPpIky_h1rGEwjDBFVqb
 
 
 ![Cryptoboss app](20200328-231936.gif)
+![Cryptoboss app](screen1.JPG)
+![Cryptoboss app](screen2.JPG)
